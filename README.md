@@ -1,2 +1,2 @@
 # MyPreciousLabs
-Here is my gonna be first creations
+Here is gonna be my first creations
